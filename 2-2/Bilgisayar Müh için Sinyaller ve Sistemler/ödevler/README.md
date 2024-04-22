@@ -1,2 +1,0 @@
-# Bu ödevler zor
-adsas
